@@ -9,4 +9,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about 0710534321
 - 📫 How to reach me: Please drop a mail to pavithramoditha@gmail.com
 - 😄 Pronouns: Call me Modi
--->
+
