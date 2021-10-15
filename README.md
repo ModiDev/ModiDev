@@ -1,6 +1,4 @@
 ### Hi there 👋
-
-<!--
 Hello 👋 I'm Moditha Dassanayake, You are in My Github Account Here I AM..........
 
 Here are some ideas to get you started:
